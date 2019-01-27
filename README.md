@@ -1,2 +1,0 @@
-# diplomnaya
-diplomnaya
